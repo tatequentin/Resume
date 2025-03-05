@@ -1,4 +1,4 @@
-# Resume# Tate York
+# Tate York
 
 #### **About me:**
 
